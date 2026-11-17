@@ -1,2 +1,3 @@
-# Zer0xTrustxKillzzz
-IT support specialist, AI red team, Cybersecurity, IT consultant
+# Jonathan Mashburn
+
+IT Support Specialist | AI Red Teaming | Cybersecurity | IT Consulting
